@@ -1,0 +1,1 @@
+I am interested in furthuring my programming knowladge by collaborating on any project that will take me. My main objective here on Github is to learn more about how to code and how to apply my skills to make actual, real-world projects. I am still a begginer and am far from an expert, but I love a good logic challenge.
